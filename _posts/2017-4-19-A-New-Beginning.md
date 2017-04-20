@@ -15,7 +15,7 @@ My sisters and I peered over the pile of puppies and began thinking of which one
 
 Tiffany decided on the shy female that ran away from me earlier and Heather ended up getting two puppies, both white with black face markings. To celebrate the event, we decided to take the pups to a nearby park. At first the puppies didn't know why the floor was rumbling beneath them, but seemed to quickly acclimate to the car.
 
-The park breathed a newfound energy into the pups. Enamored at all the strange sights and sounds, the puppies began chasing me around and trying to wander off from time to time to chase the ducks at the nearby pond. Harnessing their herding instincts, the puppies also decided to chase after shoelaces.
+The park breathed a newfound energy into the pups. Enamored at all the strange sights and sounds, the puppies began chasing me around and trying to wander off from time to time to chase the ducks at the nearby pond.
 
 ![Pups Running](http://i.imgur.com/ASAuT6U.gif)
 
@@ -41,4 +41,3 @@ We arrived home later that night and a slew of names flowed through my brain, bu
 ![Astro sleeping in my arms](http://i.imgur.com/vYzpyPq.jpg)
 
 ## Astro had a new beginning.
-
