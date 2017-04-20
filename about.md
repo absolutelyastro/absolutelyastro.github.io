@@ -2,14 +2,14 @@
 layout: page
 title: About
 permalink: /about/
+published: true
 ---
+### Social Media
 
-Some information about you!
+[YouTube](https://www.youtube.com/channel/UCjWYvGwfvP2UfUFCkspAJlQ)
+[Instagram](https://www.instagram.com/absolutelyastro/)
 
-### More Information
+### Contact
 
-A place to include any other types of information that you'd like to include about yourself.
+[Email](mailto:absolutelyastro1@gmail.com)
 
-### Contact me
-
-[email@domain.com](mailto:email@domain.com)
