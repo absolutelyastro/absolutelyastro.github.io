@@ -23,7 +23,7 @@ The park breathed a newfound energy into the pups. Enamored at all the strange s
 
 Tiffany ended up naming the shy girl **Pip**. Heather named the black half-masked pup **Mae** and the black double-masked pup **Maggie**.
 
-We arrived home later that night and a slew of names flowed through my brain, but eventually I ended on a space related one: **Astro**(nomy). Astro, seemingly contented with his new home and name, fell asleep in my lap while I was doing computer work.
+We arrived home later that night and a slew of names flowed through my brain, but eventually I ended on a space-related one: **Astro**(nomy). Astro, seemingly contented with his new home and name, fell asleep in my lap while I was doing computer work.
 
 ![Astro Sleeping in my Lap](http://i.imgur.com/05na1xV.jpg)
 
